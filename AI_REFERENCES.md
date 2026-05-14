@@ -1,2 +1,2 @@
 A beszélgetés linkje: 
-https://chatgpt.com/c/6a044f2d-04a0-83eb-b256-2e703929ef14 
+https://chatgpt.com/share/6a05a66d-0dfc-83eb-8939-5cc2a152fd53 
